@@ -60,4 +60,4 @@ Passionate about creating modern web applications, automation systems, and AI-po
 ## 🔗 Connect With Me
 
 LinkedIn  
-https://linkedin.com/in/tanaybansal
+https://linkedin.com/in/tanayybansal
